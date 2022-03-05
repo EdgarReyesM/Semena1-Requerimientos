@@ -1,0 +1,1 @@
+Aquí esta el link del Wireframe --->   https://miro.com/welcomeonboard/OTJXcm9WZ2ZweWpMM25oc0szbEtpSUJZYk1mb3JTbWJpMEZDdGZLZURwWHdLZUdDU0REVFVuMVE4RXN3aXU1YnwzNDU4NzY0NTIwMTM1NjU3NTM5?invite_link_id=589315458559
